@@ -9,3 +9,6 @@ de cavalos, adoro andar na minha égua vulgo "Chuva" :horse:
    faço este pedido em vida, ae não assustem se em alguma madrugada eu gritar com
   a cavalhada na hora da recolhida"
    
+![cavalo mostrando a língua] (https://media.tenor.com/Ja0lDN7CCo0AAAAM/horse-gouser.gif)
+
+a seguir o link do meu jogo (https://editor.p5js.org/maria.fernanda.pereira19/sketches/IbUkp9-Gw )
